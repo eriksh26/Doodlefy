@@ -7,4 +7,4 @@ Bored? Doodlefy is here for you. Draw anything you like. Unleash your inner arti
 
 <hr>
 
-                                                               ©️2023, Erik Shrestha
+                                                     ©️2023, Erik Shrestha
